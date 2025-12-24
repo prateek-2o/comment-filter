@@ -1,4 +1,4 @@
-**Terms and Conditions**
+**✅Terms and Conditions**
 
 These Terms and Conditions govern the use of the Comment Filter application (“the App”), developed for use within Reddit communities via the Reddit Devvit platform.
 
